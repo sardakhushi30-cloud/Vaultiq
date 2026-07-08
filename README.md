@@ -197,7 +197,7 @@ Backend/
 **Khushi Sarda**
 
 - GitHub: https://github.com/sardakhushi30-cloud  
-- LinkedIn: https://linkedin.com/in/your-profile
+- LinkedIn: (https://www.linkedin.com/in/khushi-sarda-699954337/)
 
 ---
 
